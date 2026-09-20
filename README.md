@@ -32,6 +32,7 @@ $\color{#C18B99}{𝗜𝗡𝗧𝗦}$ &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;
 
 $\color{#684269}{𝗣𝗮𝗸𝗸𝗮𝗻𝗲}$ &nbsp;&nbsp;&nbsp; $\color{#E6CDC8}{.}$ &nbsp;&nbsp;&nbsp; $\color{#E6CDC8}{.}$ &nbsp;&nbsp;&nbsp; $\color{#E6CDC8}{.}$ &nbsp;&nbsp;&nbsp; $\color{#CE8096}{𐔌՞ ܸ.ˬ.ܸ՞𐦯}$  &nbsp;&nbsp;&nbsp; $\color{#E6CDC8}{.}$ &nbsp;&nbsp;&nbsp; $\color{#E6CDC8}{.}$ &nbsp;&nbsp;&nbsp; $\color{#E6CDC8}{.}$ &nbsp;&nbsp;&nbsp; $\color{#684269}{𝗦𝗲𝘃𝗲𝗻𝘁𝗲𝗲𝗻}$ 
 
-
+<img width="283" height="21" alt="Screenshot 2026-09-19 205246" src="https://github.com/user-attachments/assets/877aa7ad-504f-43b6-9e14-cfebcc171920" />
+deadlock youre KILLING ME PLEASE
 
 
